@@ -2,6 +2,14 @@
 
 ---
 
+## Smarter logistics starts with the right tech talent
+
+<img src="https://github.com/user-attachments/assets/3b78074c-180f-4444-9f1f-8d286e83fedb" width="515" />
+
+[View the original post →]  https://lnkd.in/p/g9vf8RR8
+
+
+---
 
 ## The market shift is creating new hiring new opportunities
 <table>
