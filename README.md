@@ -2,6 +2,15 @@
 
 ---
 
+## Build Your Fintech Team With Engineers Who Understand More Than Code.
+
+<img src="https://github.com/user-attachments/assets/eb703cb3-49fd-4e03-8df6-23d725fd6bf4" width="515" />
+
+
+[View the original post → https://www.linkedin.com/feed/update/urn:li:activity:7517830839859056640
+
+---
+
 ## Smarter logistics starts with the right tech talent
 
 <img src="https://github.com/user-attachments/assets/3b78074c-180f-4444-9f1f-8d286e83fedb" width="515" />
