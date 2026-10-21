@@ -2,12 +2,21 @@
 
 ---
 
+
+## Replacing legacy systems isn’t just about choosing better technology.
+
+https://github.com/user-attachments/assets/c9f0ac00-968a-41b6-bc4c-59a49493170f
+
+[View the original post→] https://www.linkedin.com/feed/update/urn:li:activity:7518562179919343617
+
+---
+
 ## Build Your Fintech Team With Engineers Who Understand More Than Code.
 
 <img src="https://github.com/user-attachments/assets/eb703cb3-49fd-4e03-8df6-23d725fd6bf4" width="515" />
 
 
-[View the original post → https://www.linkedin.com/feed/update/urn:li:activity:7517830839859056640
+[View the original post→] https://www.linkedin.com/feed/update/urn:li:activity:7517830839859056640
 
 ---
 
