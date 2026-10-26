@@ -1,8 +1,21 @@
 ## Latest Social Posts
 
 ---
+## Adding AI or Autommation to your business? Build the technical team behind it. 
+
+<img src="https://github.com/user-attachments/assets/14f70d5a-56cd-439e-a765-6d9602d59f30" width="515" />
 
 
+[View the original post→] https://www.facebook.com/share/p/1Dt2GcKEVb/
+
+---
+## Scaling sovereign assets? 
+
+<img src="https://github.com/user-attachments/assets/ed1460ef-1a4f-4215-92be-36e544faca88" width="515" />
+
+[View the original post→] https://www.facebook.com/share/p/1K8tzdmW6h/
+
+---
 ## Replacing legacy systems isn’t just about choosing better technology.
 
 https://github.com/user-attachments/assets/c9f0ac00-968a-41b6-bc4c-59a49493170f
