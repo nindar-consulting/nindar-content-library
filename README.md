@@ -1,6 +1,17 @@
 ## Latest Social Posts
 
 ---
+## Know the tech market before you hire
+<tr>
+  <td><img src="https://github.com/user-attachments/assets/33e3b719-dedf-464f-ba07-69e44f2f0764" width="190" /></td>
+  <td><img src="https://github.com/user-attachments/assets/275eb6bb-2caf-4365-9421-847425d612a5" width="190" /></td>
+  <td><img src="https://github.com/user-attachments/assets/c7c6f2e6-5a7e-487c-a5ad-6527bcf53435" width="190" /></td>
+  <td><img src="https://github.com/user-attachments/assets/034a4162-f572-4418-97b6-d31b13fc9d8a" width="190" /></td>
+</tr>
+
+[View the original post→] https://www.facebook.com/share/p/19x6YpoQSL/
+
+---
 ## Adding AI or Autommation to your business? Build the technical team behind it. 
 
 <img src="https://github.com/user-attachments/assets/14f70d5a-56cd-439e-a765-6d9602d59f30" width="515" />
