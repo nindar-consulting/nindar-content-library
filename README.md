@@ -1,6 +1,12 @@
 ## Latest Social Posts
 
 ---
+## Different hiring challenges need different recruitment solutions.
+<img src="https://github.com/user-attachments/assets/e406d51f-e5a5-4cca-9d94-288536df1c26" width="515" />
+
+[View the original post→] https://www.facebook.com/share/p/1HXB2ktAGh/
+
+---
 ## Know the tech market before you hire
 <tr>
   <td><img src="https://github.com/user-attachments/assets/33e3b719-dedf-464f-ba07-69e44f2f0764" width="190" /></td>
